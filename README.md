@@ -1,5 +1,5 @@
 Interested in upcycling and repairing electronics, lowtech and using opensource for a sustainable future. 
-      To achieve freedom from slavery of capital , the worker must own the means of production -Karl Marks in Das Kapital
+
  fanyharvey@gmail.com
 
 <!---
